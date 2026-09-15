@@ -1,1 +1,1 @@
-# Hi there 👋, I'm a friend of [Simon](https://github.com/SzymonRogozinskil)
+# Hi there 👋, I'm a friend of [Simon](https://github.com/SzymonRogozinski)
